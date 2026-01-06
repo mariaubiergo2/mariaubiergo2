@@ -46,7 +46,7 @@ While my academic roots are in aviation and networks, **software development is 
 
 ## 📫 Get in Touch
 
-- 💼 LinkedIn: https://www.linkedin.com/in/maria-ubiergo-gómez/  
+- 💼 LinkedIn: https://www.linkedin.com/in/maria-ubiergo-gomez/  
 
 ---
 
